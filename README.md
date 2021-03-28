@@ -4,7 +4,7 @@ I also like to screw around with
 music production now and then.
 Nice to meet you!
 I'm not much of a talker overall, 
-but if you want to chat i'm always available...
+but if you'd like to chat i'm always available...
 
 
 <!---
